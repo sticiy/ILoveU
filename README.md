@@ -5,4 +5,4 @@
 # Mencintai gunung harus menjadi terjal
 # Mencintai api harus menjadi jilat
 # Mencintai cakrawala harus menebas jarak
-# Mencintaimu hrus menjelma aku
+# Mencintaimu harus menjelma aku
